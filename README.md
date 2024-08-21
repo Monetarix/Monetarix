@@ -5,7 +5,7 @@ Monetarix (Монетарикс, trade.monetarix.org) — закрытое со�
 <h2>Отзывы о Monetarix (Монетарикс, trade.monetarix.org)</h2>
 
 Отзывы о Monetarix легко найти во многих социальных сетях и на профильных веб-сайтах. Например:
-- **[Medium]([https://www.reddit.com/user/Dry_Ostrich6375/comments/1c1jook/monetarix_%D0%BE%D1%82%D0%B7%D1%8B%D0%B2%D1%8B_%D1%88%D0%B0%D0%B3_%D0%B2%D0%BF%D0%B5%D1%80%D0%B5%D0%B4_%D0%B2_%D0%BF%D1%80%D0%B8%D0%B1%D1%8B%D0%BB%D1%8C%D0%BD%D0%BE%D0%BC/](https://medium.com/@arsenijdubinin283/monetarix-отзывы-в-чем-преимущество-для-инвесторов-526666d9a82e))**;
+- **[Medium](https://medium.com/@arsenijdubinin283/monetarix-отзывы-в-чем-преимущество-для-инвесторов-526666d9a82e)**;
 - **[Linkedin](https://www.linkedin.com/showcase/monetarix-investment/)**;
 - **[Deviart](https://www.deviantart.com/monetarix/about)**.
   
